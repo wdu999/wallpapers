@@ -1,4 +1,4 @@
-# Wallpaper for 4k/5k moinitors
+# Wallpapers for 4k/5k moinitor
 
 ![](art/元_赵孟頫_行书心经册.jpg)
 
